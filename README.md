@@ -1,3 +1,3 @@
 ># `http cat meme`
 >
->![image](https://github.com/imvickykumar999/http-cat-meme/assets/50515418/07a1c6e1-9cc7-4642-90de-20cc68cf30e8)
+>![image](https://github.com/imvickykumar999/http-cat-meme/assets/50515418/62026d77-ed9f-4ffc-872d-ab44405bff3f)
